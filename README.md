@@ -1,1 +1,13 @@
-# MovieFy-Frontend
+Hi myself satyam trivedi from java Fse stack i was onboarded on 28dec-2021 in cde domain then i got trained in java full stack and completed
+my MFPE project then i got auto allocated into a goverment project NSDL in BFS domain.After a month they released me because there was no 
+requirement for me and then i was allocated in Bajaj auto finesery project initially they told me come visit pune location office and get
+onboarded into project but there no further communication even after me trying to reach out to them but after few weeks i asked them
+to onboarded me into project so the manager told we dont have requirements and ask us to take release. so i asked them to give release me then they relased in in NOvember 2023.while i was sitting idle in project but was upskilling myself with various certifications, programs and traning which i will list below.Since my release i have beeninto Vendor driven Programs which was organised by StackRtoute team where i completed all modules and high ratings with good feedback and also contributed to open spurce project.
+Further than i was moved to ADP where my aging started, when my aging started sudddenly my father was admitted to hospital with high risk and then got the news that my father got expired. Since i am the elder son, i was in deep pain and still have to do all customs as Hindu rituals which is about 20 days. In the meantime i had a talk with my POC that i couldn't login to my system or look for oppurtunities and requested to stop aging as special case, as a human this is the worst phase anyone can see.
+Eveyone join company, look for good work culture and as a employee I also thought thaat i will get some support from the cognizant organization,but was dissapointed how they treated this siutaion of mine. even though i was in a crisis, i have applied for oppurtunities through TMP portal, and was rejected every time without even considering. If a person doesn't get any oppurtunity for a whole month but got surprised with this show couse notice which is a second biggest pain i got in the same month. 
+i Felt really dissapointed with the system, because as HR you can seee how much i have applied via your portal, even after getting good rating and alsways keeping 100% in yearly goals, actively attend programs, certifications, completing goals, dilverabes .
+
+This is my justification for not ables to land in to any project because no oppurtuninty was provided even after applying. so could consider me and my situation and what i have gone through , i would request to look into my situation and procced according to it.
+
+Thanks & regards,
+Satyam Trivedi.
